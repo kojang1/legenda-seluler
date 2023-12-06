@@ -1,0 +1,2 @@
+# legenda-seluler
+gak ada
